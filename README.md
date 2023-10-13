@@ -1,4 +1,5 @@
 👨‍💻 Information Science & Engineering Undergraduate 📚
+
 🌟 Passionate about Code, Tech, and Continuous Learning 🚀
 
 👋 Hi, I'm Sumanth Anagadi!
