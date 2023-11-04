@@ -18,7 +18,7 @@
 🌟 Why You Should Connect:
 - 🤝 I'm always looking to collaborate on interesting projects.
 - 📚 I love to learn and share knowledge with others.
-- 🌐 
+- 🌐 Let's connect and make the tech world a better place together!
 
 📫 Get in Touch:
 - 📧 Email: angadisumanth10@gmail.com
